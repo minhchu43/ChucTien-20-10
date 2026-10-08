@@ -78,7 +78,7 @@
 
 ---
 
-### SECTION 4: Một vài bức ảnh cũng rất là xinh xắn và tinh quái(MEMORY LANE)
+### SECTION 4: Một vài bức ảnh rất là xinh xắn (MEMORY LANE)
 *(Mục tiêu: Gợi lại cảm xúc gắn bó, đưa vào hình ảnh thực tế)*
 
 - **Sub-headline:**  
